@@ -7,6 +7,6 @@
 ![image](https://github.com/yay604882/jjhy/blob/master/jjhy.jpg)
 
 
-[联系电话](+86-17129840579) : [+86-17129840579](+86-17129840579)
+[联系电话](+86-17129840588) : [+86-17129840588](+86-17129840588)
 
 [我们的邮箱](sdf556asfda@yandex.com) : [sdf556asfda@yandex.com](sdf556asfda@yandex.com)
